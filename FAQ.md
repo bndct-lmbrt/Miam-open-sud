@@ -3,7 +3,7 @@
 
 ## Qu'est ce que c'est un Miam Open Sud ?  
 
-C'est un peu le petit frère du !(Dev Open Sud) [www.devopensud.fr] puisqu'il en est issu: des développeurs qui se réunissent dans un gîte pour échanger, développer, bosser, se balader, binômer, collaborer, jouer, cuisiner. 
+C'est un peu le petit frère du [Dev Open Sud](www.devopensud.fr) puisqu'il en est issu : des développeurs qui se réunissent dans un gîte pour échanger, développer, bosser, se balader, binômer, collaborer, jouer, cuisiner. 
 Miam Open Sud, une envie de se retrouver dans une maison et de faire des trucs ensemble autour du miam, cuisiner, déguster, manger, goûter, tester, découvrir, se balader.
 
 ## C'est quand ?  
