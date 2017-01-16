@@ -41,7 +41,7 @@ Tu peux organiser du co-voiturage avec les autres membres que tu trouveras ""
 
 ## Comment je m'inscris ?  
 
-Auprès de Fabien @ de Bénédicte @
+Auprès de Fabien @FTregan de Bénédicte @bndctlambert
 
 S'il te reste des questions, tu peux nous contacter.
 
