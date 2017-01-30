@@ -5,13 +5,13 @@
 
 Miam Open Sud, une envie de se retrouver dans une maison au bord de la forêt et de faire des trucs ensemble autour du miam ; cuisiner, déguster, manger, goûter, tester, découvrir, visiter, se balader.
 
-Le mot d'ordre, c'est "faites des trucs". Pour le reste, on verra sur place. Nous aussi ce sera notre première participation !
+Le mot d'ordre, c'est "explorer des trucs". On explore ensemble, et ceci pour la 1ère fois avec toi.
 
 ## C'est quand ?  
 
 On commence le 24 Février jusqu'au 26.
 Tu peux nous rejoindre à tout moment, pour le week-end, pour le dimanche ou pour une soirée.
-Si tu arrive le soir du 23 à Toulouse, envoie-nous quand même un message avant de prendre un hôtel.
+Si tu arrives le soir du 23 à Toulouse, envoie-nous quand même un message avant de prendre un hôtel.
 
 ## C'est pour qui ?  
 
@@ -40,12 +40,12 @@ Si tu as envie d'amener des choses que tu veux faire découvrir, tu peux prendre
 
 Tu peux venir en voiture, ce sera plus simple avec un GPS mais on y arrive toujours.
 Tu peux venir en transports. De Toulouse ou d'Albi, va jusqu'à Lisle sur Tarn. Préviens nous à l'avance de ton arrivée pour qu'on puisse venir te chercher. Si tu ne peux arriver que la veille, préviens nous on s'arrangera.
-Tu peux organiser du co-voiturage avec les autres membres que tu trouveras. Il devrait y avoir plusieurs départs de Toulouse.
+Tu peux organiser du co-voiturage avec les autres membres que tu trouveras sur la fiche d'inscription. Il devrait y avoir plusieurs départs de Toulouse.
 
 ## J'apporte quoi ?  
 
 -Eventuellement draps, duvets, et serviette, mais au pire il y a tout ce qu'il faut sur place
--Tout ce que veux faire découvrir (ingrédients, instruments, ustencils, livres, ...)
+-Tout ce que veux faire découvrir (ingrédients, instruments, ustensiles, livres, ...)
 -De quoi marcher en forêt si tu veux
 -Un maillot si le week-end est ensoleillé (peut etre plus pour bronzer que pour se baigner vu la saison !)
 -Des jeux (d'intérieur ou d'extérieur)
@@ -53,11 +53,11 @@ Tu peux organiser du co-voiturage avec les autres membres que tu trouveras. Il d
 
 ## Comment vous est venue l'idée ?  
 
-On était dans un chalet dans les Alpes pour disctuer et faire des trucs autour de la programmation, mais en fait on a surtout mangé.
+On était dans un chalet dans les Alpes pour discuter et faire des trucs autour de la programmation, mais en fait on a surtout mangé.
 
 ## Comment je m'inscris ?  
 
-Auprès de Fabien @FTregan de Bénédicte @bndctlambert via twitter. Si tu préfère le mail, essai fabien (at) tregan point fr.
+Auprès de Fabien @FTregan de Bénédicte @bndctlambert via twitter. Si tu préfères le mail, essai fabien (at) tregan point fr.
 
 S'il te reste des questions, tu peux nous contacter.
 
