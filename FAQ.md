@@ -47,7 +47,7 @@ Tu peux organiser du co-voiturage avec les autres membres que tu trouveras sur l
 -Eventuellement draps, duvets, et serviette, mais au pire il y a tout ce qu'il faut sur place
 -Tout ce que veux faire découvrir (ingrédients, instruments, ustensiles, livres, ...)
 -De quoi marcher en forêt si tu veux
--Un maillot si le week-end est ensoleillé (peut etre plus pour bronzer que pour se baigner vu la saison !)
+-De quoi profiter (et se protéger) du soleil
 -Des jeux (d'intérieur ou d'extérieur)
 -Des idées et de la bonne humeur si tu en as, sinon on en aura pour toi
 
