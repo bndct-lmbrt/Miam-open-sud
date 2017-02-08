@@ -19,7 +19,9 @@ Tous ceux qui s'intéressent au miam, pas besoin de savoir, de connaître, de ma
 Si tu as des restrictions alimentaires, des allergies, ne nous dit rien, ce sera la surprise, bon exercice d'adaptation !
 On sera environ 10.
 
-Il y a de quoi loger confortablement cinq couples et faire des lessives. Il y a deux ou trois matelas supplémentaires très utilisables. S'il faut autre chose, on improvisera. 
+Il y a de quoi loger confortablement cinq couples et faire des lessives. Il y a deux ou trois matelas supplémentaires très utilisables. S'il faut autre chose, on improvisera.
+
+Tu peux venir avec tes enfants !
 
 ## Qui s'occupe de l'organisation ?  
 
