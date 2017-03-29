@@ -11,6 +11,6 @@ Les sortir lorsqu'elles sont dorées.
 Enlever la peau en les frottant lorsqu'elles sont tièdes.  
 Les mixer.  
 Faire fondre le chocolat au bain marie.  
-L'ajouter aux noisettes au fur et à mesure jusqu'à l'obtention de la consistance désirée.
+L'ajouter aux noisettes au fur et à mesure jusqu'à l'obtention de la consistance désirée.  
 Ajouter la fleur de sel.
 Conserver dans un pot hermétique.
